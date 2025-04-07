@@ -10,6 +10,6 @@ Meu nome é Isabele Batistela
 
   isabelebtll@icloud.com
 
-![](https://media1.tenor.com/m/i1qG369b7hgAAAAC/kisses.gif)
+
 
 ![uma-historia-totalmente-aleatoria-interativa-6353447-300820162245](https://github.com/user-attachments/assets/85092e04-0507-4cc9-bb80-fa1afb1d86cb)
